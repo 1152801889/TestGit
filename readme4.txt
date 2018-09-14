@@ -13,13 +13,3 @@ jinainwosiqudeaiqing
 beifurousuoxiyin
 
 wewoweiniyinxingmaiming
-
-
-++++++++
---------
-********
-¡¢¡¢¡¢¡¢
-
-
-9£¨£©£¨£©£¨
-PPPPP£©
